@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @HamzaZebJadoon, i am an HR Professional. 
+- 👋 Hi, I’m @HamzaZebJadoon, i am a Certified Human Resource Professional (CHRP) 
 - 👀 I’m interested in HR related topics and discussions.
-- 🌱 I’m currently learning Human Resource Management Techniques.
+- 🌱 I’m currently working to apply Human Resource Management Techniques in the Industry.
 - 💞️ I’m looking to collaborate on HR Matters.
-- 📫 You can reach out to me by writing Hamza Zeb Jadoon on any platform, moreover you can have my email: hamzazebjadoonhr@gmail.com and whatsapp as well 03329632257
+- 📫 You can reach out to me by writing Hamza Zeb Jadoon on any platform, moreover you can have my email: hamzazebjadoonhr@gmail.com. 
 - 😄 Pronouns:He
 - ⚡ Fun fact: Love HR in Books more... haha
 
